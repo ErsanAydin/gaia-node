@@ -8,7 +8,7 @@
 
 > Bu EXP'leri node'un çalışması için kredi olarak kullanacağız.
 
-> [Buradan](https://gaianet.ai/reward?invite_code=RiFcz1) EXP'leri toplayabilirsiniz.
+> [Buradan](https://gaianet.ai/reward?invite_code=RxSsoK) EXP'leri toplayabilirsiniz.
 
 #
 
